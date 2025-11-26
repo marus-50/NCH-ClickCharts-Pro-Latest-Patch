@@ -1,0 +1,1 @@
+# NCH-ClickCharts-Pro-Latest-Patch
